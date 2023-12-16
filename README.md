@@ -1,0 +1,1 @@
+#EN DÜŞÜK MALİYETLER YÖNTEMİ
